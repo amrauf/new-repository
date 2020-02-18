@@ -1,2 +1,4 @@
 Ingredients
-daffhdak
+-avocado
+-lemon
+-salt
